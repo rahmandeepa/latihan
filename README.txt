@@ -1,0 +1,2 @@
+# latihan
+buat latihan aja
